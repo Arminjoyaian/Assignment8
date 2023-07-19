@@ -12,7 +12,7 @@ T3
 
 T4
 
-![4](https://github.com/Arminjoyaian/Assignment8/assets/137637877/145d50e9-5f47-4308-beb6-5c7671c94c0e)
+![30](https://github.com/Arminjoyaian/Assignment8/assets/137637877/fbc3ada2-7987-4f0e-8ede-c1acaf78c285)
 
 
 T5
